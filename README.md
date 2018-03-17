@@ -1,4 +1,4 @@
 # Portfolio
 
-[Click here to view](https://darrenrayevans.com)
+www.darrenrayevans.com
 
